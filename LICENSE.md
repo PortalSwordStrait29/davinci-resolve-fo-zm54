@@ -1,4 +1,4 @@
-# 
+# DaVinci Resolve for PC | DaVinci Resolve for Windows updated Extension: slow-motion & auto-cut offers the most advanced DaVinci Resolve for PC | DaVinci Resolve for Windows
 
 
 
